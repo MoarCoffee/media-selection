@@ -14,7 +14,7 @@ A bit of preface so you can judge if my taste is something you should care about
 - Wizard of Earthsea by Ursula Le Guin. Long before there was Harry Potter, there was a good book about a young wizard who grows up to save the world. I read this book once per day for a week when I first discovered it.
 - Dune by Frank Herbert. Amazing book, very poor Audible adaptation.
 - Clocktaur War series, by T. Kingfisher. A cozy series about magic, or actually the tale of three very interesting characters with an accompanying backdrop story about magic. Very nicely read by Khristine Hvam too. If you like this one you should read "A Wizard's Guide to Defensive Baking" too.
-- The Golem and the Jinni by Helen Wecker. A story about two magical being arriving to eary 20-century New York.
+- The Golem and the Jinni by Helen Wecker. A story about two magical beings arriving to eary 20-century New York.
 
 ## Just for balance, a selection of sci-fi recommendations too
 - The Murder Bot Diaries by Martha Wells. Love this series, can’t recommend it enough. 
